@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @dougpelegrini
+- 👀 I am interested in knowing more about machine learning and
+- 🌱 I am currently studying an MBA in digital business
+- 💞️ I'm looking to collaborate on projects that need sales channels or franchises
+- 📫 You can contact me at douglas@ventech.com.br
